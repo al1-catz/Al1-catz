@@ -73,7 +73,7 @@ __________
 
 
 
-<p align="center">i heavy kin pangi (mcyt) lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) gema (tinggal meninggal show) ! ꉂ(˵˃ ᗜ ˂˵)
+<p align="center">i heavy kin lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) ! ꉂ(˵˃ ᗜ ˂˵)
 
 <p align="center">_______________extras_______________ ₊⊹
 
