@@ -9,7 +9,7 @@
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&weight=200&pause=1000&color=92C6F9&width=435&lines=look+at+you+a+beutifull+butterfly;flying+freely+in+the+night+sky" alt="Typing SVG" /></a>
 </p>
 
-<p align="center">$\textcolor{#8E929B}{\text{HI! - im catz! other known as aquaticcatzz/Aqua/catz/theo/ali/jay  ᶻ 𝗓 𐰁.}}$
+<p align="center">$\textcolor{#8E929B}{\text{HI! - im catz! other known as aquaticcatzz /Aqua /catz /theo /ali /jay  ᶻ 𝗓 𐰁.}}$
 
 <p align="center"> > > other names if close - ₊⊹ < < 
 
@@ -35,9 +35,9 @@
 
 -  - DNC my skins ! pls it takes a long time to make skins ! ! 
 
--  - i play > > > pt [ pony town ] rblx [ roblox ] mc [ Minecraft ] 
+-  - i usually stay in my own lil space and dont explore other fandoms much
 
--  - i have pinterest ! ! = i post artwork ! of ocs / lore / Characters / random  [ acc name >>> comfuzzle ] its kinda dead tho ! ;-;
+-  - i like drawing especially my friends.. the ones that are ok wizh it
 
 -  - im a chill person and i love plushies (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
  
@@ -45,9 +45,9 @@
 
 -  - emotiononally unstable and a cry baby . easily cries / get hurt
 
--  - freaky at times randomly [ pls tell if uncomfortable my jokes are sometimes freaky so pls tell me and i will stop! ]
+-  - freaky at times randomly and my jokes are either unfunny or dark..
 
--  - sleepy head when without my coffe 💤 if i dont respond that means im either asleep or afk
+-  - im a sleepy head, if i stay up just to be by ur side thats a sign ur important to me (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠)
 
 -  - mood able to change according to time or events , day usually active sometimes lazy night usually unpridictable
 
@@ -55,7 +55,7 @@
 
 -  - when i say afk sometimes i will talk again bcuz i have spare time when i stop talking thats when im genuinly afk/asleep !
 
--  - i used tonetags such as /jk . /hvyj . /sar . /srs . /nsrs
+-  - i used tonetags such as /jk . /hvyj . /sar . /srs . /nsrs but u dont have too
 
 -  - i show affection through gestures like hugs cuddles and gifts , i try my best with my words !
 
