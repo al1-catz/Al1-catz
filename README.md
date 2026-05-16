@@ -73,7 +73,7 @@ __________
 
 
 
-<p align="center">i heavy kin lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) ! ꉂ(˵˃ ᗜ ˂˵)
+<p align="center">i heavy kin lomedy (mcyt) kihec (mcyt) pangi (mcyt) ! ꉂ(˵˃ ᗜ ˂˵)
 
 <p align="center">_______________extras_______________ ₊⊹
 
