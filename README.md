@@ -3,5 +3,4 @@
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/chunglodites">
-<img width="500" height="500" alt="1000020496" src="https://github.com/user-attachments/assets/37588416-4983-42da-805d-e10997c2981f" />
+  <img width="300" height="300" alt="1000020504" src="https://github.com/user-attachments/assets/c2e19c3f-e0a1-4625-84b5-bad0d67e0ac1" />
