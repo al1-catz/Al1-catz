@@ -7,3 +7,7 @@
 
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&weight=200&pause=1000&color=8E644A&width=435&lines=you+waited...+and+waited+for+me...;you+just+kept+on+waiting+for+me!..;.+.+.+.+.+.+.+.+.+.+.+.+.+.+.+.+.+.+.+.;i+don't+deserve+you+.+.+.+.+.+.+." alt="Typing SVG" /></a>
+
+
+<img width="203" height="249" alt="1000020809" src="https://github.com/user-attachments/assets/474151e0-32d4-476d-aafb-73dc329da336" />
+sun wukong yumeshipper. yes i know hed probably leave me for a peach. yes i still love him. yes i love every version of him especially the black myth: wukong one. yes i know thats a picture of "the chosen one" from black myth wukong. yes i love him too. yume dupes DNI/iwec
